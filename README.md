@@ -1,1 +1,1 @@
-# My-code-Jounrney
+# My-code-Journey
